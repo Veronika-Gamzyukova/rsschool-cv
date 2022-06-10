@@ -43,4 +43,4 @@ No work experience yet.
 
 ****
 ## Language
-- English — B1**.
+- English — B1.
